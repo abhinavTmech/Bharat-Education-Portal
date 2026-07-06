@@ -1,1 +1,1 @@
-# Bharat-Education-Portal
+# BHARAT-EDUCATION-PORTAL
